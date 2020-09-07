@@ -1,4 +1,4 @@
-#Resume#
+Resume
 
 My name is Andrei Duka
 
