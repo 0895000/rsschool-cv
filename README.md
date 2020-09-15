@@ -12,4 +12,4 @@ I have high economic education.
 
 I think my English B1
 
-https://your-github-account.github.io/rsschool-cv/cv
+https://0895000.github.io/rsschool-cv/cv
