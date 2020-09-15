@@ -8,6 +8,6 @@ My profession is economist. I hope progranmming would be not only dream for me, 
 
 I have not any skills and rsschool - my first courses. One week ago I begin study HTML and CSS.
 
-I have high economic education/
+I have high economic education.
 
 I think my English B1
