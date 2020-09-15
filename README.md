@@ -13,4 +13,3 @@ I have high economic education.
 I think my English B1
 
 https://0895000.github.io/rsschool-cv/cv
-
