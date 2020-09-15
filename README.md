@@ -12,4 +12,4 @@ I have high economic education.
 
 I think my English B1
 
-https://Andrey_Duka/rsschool-cv/cv
+https://0895000/rsschool-cv/cv
