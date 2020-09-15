@@ -11,3 +11,5 @@ I have not any skills and rsschool - my first courses. One week ago I begin stud
 I have high economic education.
 
 I think my English B1
+
+https://0895000.github.io/rsschool-cv/cv
