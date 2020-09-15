@@ -17,4 +17,4 @@ https://0895000.github.io/rsschool-cv/cv
 https://github.com/0895000/rsschool-cv/cv
 
 
-https://github.com/0895000/rsschool-cv
+https://github.com/0895000.githuub.io/rsschool-cv/cv
