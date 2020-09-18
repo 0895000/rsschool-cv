@@ -1,5 +1,3 @@
-Resume
-
 My name is Andrei Duka
 
 Contact info: Dafgrodno@mail.ru, vk.com/a _duka
