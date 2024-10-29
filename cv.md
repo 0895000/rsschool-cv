@@ -16,6 +16,6 @@ Code examples:
   }
   ```
 
-  Education: Belarusian РЎommercial University of Management.
+  Education: Belarusian Commercial University of Management.
 
 English: I think my English is B1.
